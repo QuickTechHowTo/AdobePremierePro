@@ -1,6 +1,6 @@
 # AdobePremierePro
 Adobe Premiere Pro Cracked
-
+Get Latest Version From Published
 code: 3727199
 
  ⚠️ ⚠️ IF IT GIVES AN ERROR TRY RUNNING WITHOUT ANTIVIRUS AND/OR RUN AS ADMIN  ⚠️ ⚠️
